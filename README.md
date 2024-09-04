@@ -1,3 +1,3 @@
-# HAII 
+# HAII
 
-Perkenalkan nama saya dinda milik ayanggcuu faisall<3
+mata pelajaran IPA
