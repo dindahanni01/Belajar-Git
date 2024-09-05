@@ -1,3 +1,3 @@
 # HAII
 
-mata pelajaran IPA
+mata pelajaran IPS
